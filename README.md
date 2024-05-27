@@ -350,6 +350,10 @@
 
 【报名截止：6.30】[生物医学工程学院](https://mp.weixin.qq.com/s/QCbT2n5klB_LY0XLUvd-bQ)
 
+## 湖南大学
+
+【报名截止：6.14】[信息科学与技术学院](http://csee.hnu.edu.cn/info/1062/13197.htm)
+
 ## 陕西师范大学
 
 > [陕西师范大学2025年接收推荐免试研究生预报名公告](http://yz.snnu.edu.cn/info/1009/3703.htm)
